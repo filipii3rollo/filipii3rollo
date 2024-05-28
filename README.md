@@ -8,4 +8,9 @@ Meu nome é Filipi
 
   ### Você entrar em contato comigo 📧
 
-  00001078513648sp@al.educacao.sp.gov.br
+  00001078513648sp@al.educacao.sp.gov
+
+
+
+
+  ![](https://media1.tenor.com/m/D6P7ayaAqY0AAAAd/the-chosen-os-escolhidos.gif)
